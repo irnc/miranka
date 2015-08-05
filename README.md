@@ -8,6 +8,10 @@
 * http://jbc.bj.uj.edu.pl/dlibra/plain-content?id=69193
 * http://stihi.ru/rec.html?2014/04/15/11313
 
+Sources:
+
+* http://jbc.bj.uj.edu.pl/dlibra/publication?id=72530
+
 ## Фольварк
 
 * http://biketourist.club/route/041214011529
